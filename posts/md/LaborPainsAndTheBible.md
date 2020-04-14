@@ -80,8 +80,6 @@ Notice, the bible says (in all translations), God said to **"the woman" - which 
 
 God did not say that he would multiply the pain of all women on Earth, rather the Bible says, YOUR pains - Eve's pain alone
 
-Then Danyl, why do all women have that pain to this day? I will answer that later in this article. For now, **Concentrate :smile:**
-
 ### Multiplication, not Addition
 
 > ...childbirth pain wasn't **added** by God it was only **multiplied** by God.
