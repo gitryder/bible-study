@@ -123,7 +123,7 @@ But, In a sinless world, you would never experience pain **because no one would 
 
 Cain killed Abel. Abel must have felt the pain, right? 
 
-**But, Abel's pain was not caused because of sin, Abel's pain was caused because of Cain's "will to cause pain". **
+**But, Abel's pain was not caused because of sin, Abel's pain was caused because of Cain's "will to cause pain".**
 
 **And this "will to cause pain" is called sin (1 John 5:17)**
 
