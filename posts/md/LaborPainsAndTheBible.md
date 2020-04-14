@@ -1,22 +1,24 @@
-# Understanding Curses
+# Labor Pains & the Bible
 
-The other day someone asked my brother about why women are still under the curse of childbirth - why do they still experience labor pains if Jesus took all curses? My brother had no answer and yielded to the question of the questioner. So I had to take matters into my own hands.
+Have you ever wondered why women are still under the curse of childbirth pain - why do they still experience labor pains if Jesus took all curses? Is it even a curse? Is it for all women?
 
-Before I begin, I want to remind you of the goodness of Our Heavenly Father. He is too good to look at you crumbling in pain; albeit, I love answering questions using the Bible and this is a good question.
+**SO MANY QUESTIONS!! :anguished:**
+
+Worry not! I bring some answers to you through the explaining of secrets hidden in the Bible.
+
+Before I begin, I want to remind you of the goodness of Our Heavenly Father. He is too good to look at you crumbling in pain. Albeit, I love answering questions using the Bible and this is a good question. So let's begin...
 
 ## Disclaimer
 
-All the views expressed here are my own. I do not intend to copy another's work for self-glorification. Please proceed only if you have a neutral mind. 
+All the views expressed here are my own. I do not intend to copy another's work for self-glorification. 
 
-If you have a deterministic view of life and believe all is determined, **Leave now**
+## Adding to the question
 
-## TL;DR
+**Now,** If God allows us to stay single (1 Cor 7:7), then all the women that are single are saved from the curse of labor pain. Which means there is a loophole in God's system? Which makes God unjust?!
 
-If God cursed women, did he curse Eve alone? NO! He cursed all women. But the bible says, that staying single is also is a gift from God (1 Cor 7:7)
+Which would mean that the curse of pain is only for some women? WHAT?!
 
-**Now,** If God allows us to stay single, then all the women that are single are saved from the curse of labor pain? Which means there is a loophole in God's system? Which makes God unjust?!
-
-I have answered the question here itself, yet...let's get into specifics 
+Let's dive deep...:ocean: 
 
 ## The happenings in the Garden
 
@@ -49,11 +51,9 @@ The mental pain of *bringing sin into the world*
 
 > For there is no respect of persons with God. - Romans 2:11 KJV
 
-God **does not** favor any single gender. Just like the first curse put on Eve *wasn't only for Eve*, but for all mankind, in the same way, the second curse too was for all mankind, *not Eve alone*
+God **does not** favor any single gender. This curse spoke of the division that sin brought between God and man.
 
-> This curse spoke of the division that sin brought between God and man.
-
-**I'm about to speak from the revelation that the Lord has allowed me to have, proceed with caution**
+**Now, the revelation that the Lord has allowed me to have, proceed with caution**
 
 Women were called by God to be a partner with man, she was created as a companion to man she was created to be equal to man, but sin caused her to be put under her husbands rule (Gen 3:16, 1 Tim 2:12)
 
@@ -78,9 +78,9 @@ Let's go step-by-step...
 
 Notice, the bible says (in all translations), God said to **"the woman" - which was Eve**, "I will multiply **your** pain"
 
-God did not say that he would multiply the pain of all women on Earth, rather the Bible says, YOUR - Eve alone
+God did not say that he would multiply the pain of all women on Earth, rather the Bible says, YOUR pains - Eve's pain alone
 
-Then Danyl, why do all women have that pain to this day? I will answer that later in this article. For now, Concentrate.
+Then Danyl, why do all women have that pain to this day? I will answer that later in this article. For now, **Concentrate :smile:**
 
 ### Multiplication, not Addition
 
@@ -95,7 +95,7 @@ God said, "I will **MULTIPLY** your pain"
 * Which means, childbirth pain wasn't **added** by God it was only **multiplied** by God.
 * Which means, even if Eve hadn't sinned, she would experience pain during childbirth
 
-Now why did he do that? Is He cruel? No! That I will explain in a future article. Stay tuned
+Now why did he do that? Is He cruel? No! That I will explain in a future article.
 
 Danyl, I'm getting you now, but wait I have always been told that pain came into the world because of sin and you are saying pain existed already and God only multiplied it? WHAT?!!
 
@@ -131,14 +131,15 @@ Cain killed Abel. Abel must have felt the pain, right?
 
 ## Final Words
 
-Jesus defeated death on the cross, not pain. Because everything must undergo pain. This is why Jesus said, "a seed must fall to the ground and **die**"
+Jesus defeated death on the cross, not pain. To defeat death, he went through pain. Because pain is itself is not harmful, but the thing it brings -- death -- is what we fear.
+
+Everything must undergo pain. This is why Jesus said, "a seed must fall to the ground and **die**"
 
 * This ground has been cursed and hence pain will continue to exist but undeserved pain shall never touch us as believers in Christ (Proverbs 26:2)
-
 * A caterpillar must bear pain and break through the cocoon to turn into a butterfly.
-
 * I will never experience labor pain for sure, but men aren't exempted from pain either :slightly_smiling_face:
 * Men too have their shares of mental pain not because of God, but because of the enemy. God is no respecter of persons. He can never see you in pain
+* In Paradise alone shall all pain be removed and there will be eternal joy
 * The pain of childbirth will always exist because pain alone can show you the greatness of the joy that comes after
 * You will only respect the morning if there is a night of darkness and uncertainty
 
